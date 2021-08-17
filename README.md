@@ -3,4 +3,4 @@
 
 ### Web Developer
 
-> Will make great progress in the future<hr/>
+> job hunting
